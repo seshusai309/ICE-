@@ -40,6 +40,6 @@ Educational Resources:
                   informative resources, and proactive safety measures to enhance your 
                   knowledge and preparedness.\
                   
-VISIT THE CODE AND SEE THE WEBSITE AND EXPLORE THE WEBSITW :)
+   VISIT THE CODE AND SEE THE WEBSITE AND EXPLORE THE WEBSITW :)
 
-Network Collaboration: We collaborate with a network of medical professionals, emergency responders, and healthcare institutions to facilitate effective communication and optimize your care during emergencies.
+
