@@ -40,6 +40,6 @@ Educational Resources:
                   informative resources, and proactive safety measures to enhance your 
                   knowledge and preparedness.\
                   
-   VISIT THE CODE AND SEE THE WEBSITE AND EXPLORE THE WEBSITW :)
+   VISIT THE CODE AND SEE THE WEBSITE AND EXPLORE THE WEBSITe :)
 
 
